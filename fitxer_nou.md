@@ -1,1 +1,1 @@
-Es tracte de un projecte de cybercafe
+Es tracte de un projecte de cybercafe.
